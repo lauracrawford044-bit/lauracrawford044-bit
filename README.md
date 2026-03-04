@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Laura, an IT Professional. 
 
 <!--
 **lauracrawford044-bit/lauracrawford044-bit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
